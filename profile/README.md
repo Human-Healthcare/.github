@@ -12,7 +12,7 @@ http://www.human.com.sg
 
 ### Phone
 
-+65 91788969 Phone number is +65 91788969
++65 91788969
 
 ### Industry
 
